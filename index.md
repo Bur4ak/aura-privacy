@@ -71,7 +71,7 @@ We may update this Privacy Policy from time to time. We will notify you of any c
 10. Contact Us
 If you have any questions about this Privacy Policy or our data practices, please contact us at:
 
-Email: zararpro@gmail.com
+Email: burak23369@gmail.com
 
 
 
